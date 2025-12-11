@@ -64,4 +64,5 @@ Tech Learning & Certifications
 Contact Me
 
 Email: nyabwariroach19@gmail.com
+
 Location: Kenya
